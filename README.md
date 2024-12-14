@@ -1,1 +1,1 @@
-Gerwazy junior
+Gerwazy junior. Lubi jeść.
